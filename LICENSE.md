@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Mint Bot for blur sniper bot | auto-buy & private-RPC-nodes, the #1 blur sniper bot. Includes auto-buy and private-RPC-nodes for a faster and
 
 
 
